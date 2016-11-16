@@ -1,1 +1,1 @@
-# Canady_CryptoZoo-Epxlorer
+# Canady_CryptoZoo-Exlorer
